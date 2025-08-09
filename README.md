@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **saijagtap2411@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1GjVLcDRAFb_hdRYkxJRN7lqckCDXZCOz/view?usp=sharing](https://drive.google.com/file/d/1GjVLcDRAFb_hdRYkxJRN7lqckCDXZCOz/view?usp=sharing)
+- 📄 Know about my experiences https://saijagtap2411.github.io/Portfolio/
 
 - ⚡ Fun fact **I am Funny**
 
